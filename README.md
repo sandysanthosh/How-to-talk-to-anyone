@@ -2,13 +2,13 @@
 
 * Good smile
 
-Give a good and genuine smile to every person you come scross
+Give a good and genuine smile to every person you come across.
 
 * Eye Contact
 
 Don`t get distracted when you are speaking with someone.
 
-* Dnt give one word answer 
+* Donot give one word answer 
  
 Elaborate more this improves conversation and doesn't make it look awkward
 
